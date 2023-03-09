@@ -1,0 +1,1 @@
+[MBTI](https://en.wikipedia.org/wiki/Myers%E2%80%93Briggs_Type_Indicator)(Myers-Briggs Type Indicator) 是一种非常受欢迎的性格分类法，它分类方法被广泛应用于心理学、职业咨询、人际关系等领域。比较有名的测试网站是：[16 Personalities](https://www.16personalities.com/)。
